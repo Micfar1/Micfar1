@@ -1,1 +1,1 @@
-Meticulous Frontend Engineer aiming for consistent accumulated results.
+Strategic Frontend Engineer who adapts at a rapid rate.
