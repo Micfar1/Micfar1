@@ -1,1 +1,1 @@
-Strategic Frontend Engineer who adapts at a rapid rate.
+Frontend Engineer who uses strategy and iterative development to create high quality products.
